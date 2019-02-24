@@ -1,6 +1,68 @@
 
 # Książki do słuchania
 
+## Florian Czarnyszewicz - Nadberezyńcy
+
+ * [1. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 1. (Książka do słuchania/Dwójka)](https://static.prsa.pl/2a81f9e8-a530-4e3c-a8d4-e740304baf45.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [2. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 2. (Książka do słuchania/Dwójka)](https://static.prsa.pl/e196193b-ac7e-42d2-a788-39f0bb5ce567.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [3. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 3. (Książka do słuchania/Dwójka)](https://static.prsa.pl/57b741c1-9c1f-4700-8ab8-57dcc19ed9d5.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [4. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 4. (Książka do słuchania/Dwójka)](https://static.prsa.pl/ae843bf0-18fd-4b9d-bebf-98527bd012c7.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [5. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 5. (Książka do słuchania/Dwójka)](https://static.prsa.pl/9918808c-b45c-4bf3-91e2-83e2caa3267f.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [6. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 6. (Książka do słuchania/Dwójka)](https://static.prsa.pl/92d36728-a2dd-4d52-b434-a12bfde2b3f4.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [7. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 7. (Książka do słuchania/Dwójka)](https://static.prsa.pl/425eaee2-68d8-4c0e-9b72-82eb6de08c0a.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [8. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 8. (Książka do słuchania/Dwójka)](https://static.prsa.pl/ef5484a4-bd55-45a9-a6bf-66741404c670.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [9. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 9. (Książka do słuchania/Dwójka)](https://static.prsa.pl/b9598ac4-ae71-473e-8fe4-de9ce5b63f5b.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [10. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 10. (Książka do słuchania/Dwójka)](https://static.prsa.pl/db725598-211a-4a52-af27-3d2df1b8c72d.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [11. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 11. (Książka do słuchania/Dwójka)](https://static.prsa.pl/f098739f-e2fb-45d3-97c1-e3b3dbb00381.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [12. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 12. (Książka do słuchania/Dwójka)](https://static.prsa.pl/7b0dfd9b-96b2-460e-866b-08c043c0968e.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [13. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 13. (Książka do słuchania/Dwójka)](https://static.prsa.pl/0c69924b-545b-4c72-af74-7b19786e3078.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [14. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 14. (Książka do słuchania/Dwójka)](https://static.prsa.pl/bb543e90-dfed-412c-98a1-69e8b9d706cd.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [15. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 15. (Książka do słuchania/Dwójka)](https://static.prsa.pl/6cd6f3a1-6d06-4ff3-bcc5-6cc6347499a0.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [16. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 16. (Książka do słuchania/Dwójka)](https://static.prsa.pl/23d4428a-5c7a-4b6f-a155-c681d0a7d646.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [17. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 17. (Książka do słuchania/Dwójka)](https://static.prsa.pl/e1daf665-132a-45d0-93c7-0313c2c6402e.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [18. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 18. (Książka do słuchania/Dwójka)](https://static.prsa.pl/9bf705ca-0ca4-42e0-8ee4-8afe3971f6d8.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [19. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 19. (Książka do słuchania/Dwójka)](https://static.prsa.pl/647b82b3-90bf-4c04-a94f-8681a3d8b534.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [20. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 20. (Książka do słuchania/Dwójka)](https://static.prsa.pl/1bfee4e9-ba75-4f80-b9b2-440feda6aa41.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [21. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 21. (Książka do słuchania/Dwójka)](https://static.prsa.pl/778ab5f3-99fd-4135-8fc5-09f6d6b1d224.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [22. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 22. (Książka do słuchania/Dwójka)](https://static.prsa.pl/9d0cb6e1-f6f6-4465-a0ee-12c2131c3b9e.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [23. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 23. (Książka do słuchania/Dwójka)](https://static.prsa.pl/476044a8-8b34-4ea0-98e8-813516002fdb.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [24. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 24. (Książka do słuchania/Dwójka)](https://static.prsa.pl/d14c6dac-673c-4e03-99b9-d1bee1023bdd.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [25. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 25. (Książka do słuchania/Dwójka)](https://static.prsa.pl/fcba3381-d947-425f-b5bf-8fa16b8c3924.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [26. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 26. (Książka do słuchania/Dwójka)](https://static.prsa.pl/97629244-1d45-406e-9608-13849fc69cb3.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [27. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 27. (Książka do słuchania/Dwójka)](https://static.prsa.pl/616970af-6c43-4b6c-bf2c-cb37f20a33e0.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [28. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 28. (Książka do słuchania/Dwójka)](https://static.prsa.pl/7e7cd7d5-f1ed-4379-8f71-36e59fbf8e4e.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [29. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 29. (Książka do słuchania/Dwójka)](https://static.prsa.pl/c4ff8b1e-cf19-408e-bf3e-a940942a7096.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [30. Florian Czarnyszewicz "Nadberezyńcy", czyta Adam Ferency - fragm. 30. (Książka do słuchania/Dwójka)](https://static.prsa.pl/8a508119-f253-4183-b1af-cec7b8e3e78d.mp3?source=MAIN_PLAYER_PR_V2)
+
 ## Gustav Flaubert - Pani Bovary
 
  * [1. Gustav Flaubert "Pani Bovary", czyta Agata Kulesza - fragm. 1. (Książka do słuchania/Dwójka)](https://static.prsa.pl/b8b9aa76-6ca4-4b64-af07-87ce5b4bb2b1.mp3?source=MAIN_PLAYER_PR_V2),
