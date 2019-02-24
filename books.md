@@ -281,3 +281,56 @@
  * [97. Jaroslav Hašek "Przygody dobrego wojaka Szwejka", czyta Zbigniew Zamachowski - fragm. 97. (Książka do słuchania/Dwójka)](https://static.prsa.pl/6adc1952-6bba-4a4f-9043-9bb2fbcf3885.mp3?source=MAIN_PLAYER_PR_V2),
 
  * [98. Jaroslav Hašek "Przygody dobrego wojaka Szwejka", czyta Zbigniew Zamachowski - fragm. 98. (Książka do słuchania/Dwójka)](https://static.prsa.pl/6088077c-6cd0-42cb-bfee-f4499335f9cb.mp3?source=MAIN_PLAYER_PR_V2)
+
+
+ ## Franz Kafka - Proces
+
+ * [1. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 1. (Książka do słuchania/Dwójka)](https://static.prsa.pl/e139b9c5-450c-4793-80cf-47ac800f2feb.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [2. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 2. (Książka do słuchania/Dwójka)](https://static.prsa.pl/b0d4254f-cb4b-480c-b60f-dce6e71f6699.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [3. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 3. (Książka do słuchania/Dwójka)](https://static.prsa.pl/1dd5590b-6e25-4a9c-8dd4-61ed6f00c898.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [4. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 4. (Książka do słuchania/Dwójka)](https://static.prsa.pl/31b7cc3f-70da-4e62-9616-531dabbe042c.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [5. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 5. (Książka do słuchania/Dwójka)](https://static.prsa.pl/e39aeba3-87ad-4cde-a63b-c4f1715b6ad6.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [6. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 6. (Książka do słuchania/Dwójka)](https://static.prsa.pl/71abbb99-3b72-41dc-a71d-3dc452d523fd.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [7. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 7. (Książka do słuchania/Dwójka)](https://static.prsa.pl/47467f78-c023-4b8f-91ec-b25c61420750.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [8. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 8. (Książka do słuchania/Dwójka)](https://static.prsa.pl/068887de-9646-4977-8355-73427dda761c.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [9. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 9. (Książka do słuchania/Dwójka)](https://static.prsa.pl/18424e20-a31d-46e5-82bd-0f8356946f53.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [10. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 10. (Książka do słuchania/Dwójka)](https://static.prsa.pl/584367fe-592b-4b9d-a1cb-2cd5a3e28bb8.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [11. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 11. (Książka do słuchania/Dwójka)](https://static.prsa.pl/1e1c058d-837c-4c14-a330-df0ef54f52cf.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [12. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 12. (Książka do słuchania/Dwójka)](https://static.prsa.pl/71d0eb34-88db-47be-b663-34521aa4f58c.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [13. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 13. (Książka do słuchania/Dwójka)](https://static.prsa.pl/25083e5c-101c-40cd-af56-b5c6b729696c.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [14. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 14. (Książka do słuchania/Dwójka)](https://static.prsa.pl/14dddd2d-2c3d-4310-96ac-344d6678a60a.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [15. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 15. (Książka do słuchania/Dwójka)](https://static.prsa.pl/4a1bcc69-6b52-46e5-8d87-ae38b4f009b7.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [16. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 16. (Książka do słuchania/Dwójka)](https://static.prsa.pl/dd57d17c-4108-40f0-afaf-aa7675b71ffc.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [17. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 17. (Książka do słuchania/Dwójka)](https://static.prsa.pl/e66c8ed0-0db5-4621-a0ca-d0f71c8f0331.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [18. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 18. (Książka do słuchania/Dwójka)](https://static.prsa.pl/cb855be2-cc57-4956-9a63-3d0b1cd1677d.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [19. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 19. (Książka do słuchania/Dwójka)](https://static.prsa.pl/f21db49f-1841-48cb-b38c-abdbe2c643e7.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [20. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 20. (Książka do słuchania/Dwójka)](https://static.prsa.pl/5a39795a-c609-484f-9339-4f46f74bfb64.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [21. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 21. (Książka do słuchania/Dwójka)](https://static.prsa.pl/c03abbae-ad7e-4eb8-ac32-87e6b68b58b5.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [22. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 22. (Książka do słuchania/Dwójka)](https://static.prsa.pl/2a2a74f3-ea0c-46a1-a97c-19992119939d.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [23. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 23. (Książka do słuchania/Dwójka)](https://static.prsa.pl/36bc6d9a-1bea-4d52-a615-7217fcbc7dc6.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [24. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 24. (Książka do słuchania/Dwójka)](https://static.prsa.pl/e795b019-d4a3-4472-864d-e215991142fc.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [25. Franz Kafka "Proces", czyta Piotr Adamczyk - fragment 25. (Książka do słuchania/Dwójka)](https://static.prsa.pl/1516adb9-de1e-4768-98ba-32a048cf8a0b.mp3?source=MAIN_PLAYER_PR_V2)
