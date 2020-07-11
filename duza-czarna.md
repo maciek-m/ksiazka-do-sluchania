@@ -1,5 +1,21 @@
 ## Duża czarna
 
+* [521. "Ida Haendel 1928-2020 (Duża czarna/Dwójka)"](https://static.prsa.pl//static.prsa.pl/47587730-39ca-466c-95cc-e6daca248537.mp3?source=PAGE_PLAYER_PR_V2)
+
+* [520. "Beethoven Symfonie Konwitschny vs Kletzki (Duża czarna/Dwójka)"](https://static.prsa.pl//static.prsa.pl/b9218433-8d2c-47bd-8041-0348116a8785.mp3?source=PAGE_PLAYER_PR_V2)
+
+* [519. "Rytm lat dwudziestych. (Duża czarna/Dwójka)"](http://static.polskieradio.pl/eebb6a5f-0fd0-47bc-9c4a-25220d4364a6.mp3?source=MAIN_PLAYER_PR_V2)
+
+* [518. "Pęd lat dwudziestych. (Duża czarna/Dwójka)"](http://static.polskieradio.pl/0bf57050-1524-42b3-8e67-09f1130865b1.mp3?source=MAIN_PLAYER_PR_V2)
+
+* [517. "Beethoven op. 59 (Duża czarna/Dwójka)"](https://static.prsa.pl//static.prsa.pl/4fb59cc9-d40e-4088-8e04-c3e9058e5316.mp3?source=PAGE_PLAYER_PR_V2)
+
+* [516. "I Gioielli Della Lirica". Opera z najlepszej strony (Duża czarna/Dwójka)](https://static.prsa.pl/1162eabf-bf18-4aa8-b7f3-3de2af9b8745.mp3?source=MAIN_PLAYER_PR_V2)
+
+* [515. Molowy Mozart (Duża czarna/Dwójka)](https://static.prsa.pl//static.prsa.pl/0cc049dc-52d1-4b11-be37-0da5c83d6d9b.mp3?source=PAGE_PLAYER_PR_V2)
+
+ * [514. Barok z myszką (Duża czarna/Dwójka)](https://static.prsa.pl/af6a9178-09a0-44e1-a192-999dd6b33cff.mp3?source=MAIN_PLAYER_PR_V2)
+
  * [513. Beethoven. Symfonie - część III (Duża czarna/Dwójka)](https://static.prsa.pl/d452e527-d010-42e4-8414-10dae041c9ff.mp3?source=MAIN_PLAYER_PR_V2)
 
  * [512. Beethoven Opus 18 (Duża Czarna)](https://static.prsa.pl//static.prsa.pl/db8d1052-f67f-4f0b-a880-6e0bb67062df.mp3?source=PAGE_PLAYER_PR_V2)
