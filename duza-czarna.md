@@ -1,5 +1,11 @@
 ## Duża czarna
 
+* [524. "Polskie Nagrania (Dużą czarna/Dwójka)"](https://static.prsa.pl//static.prsa.pl/96d6fc45-de02-41d8-a98d-98e2853bc64d.mp3?source=PAGE_PLAYER_PR_V2)
+
+* [523."Bernand Ładysz (Duża czarna/Dwójka)"](http://static.polskieradio.pl/0f187753-9a64-43e7-b3a2-f7fb46281278.mp3?source=MAIN_PLAYER_PR_V2)
+
+* [522. "La Mer (Duża czarna/Dwójka)"](https://static.prsa.pl//static.prsa.pl/a06da8f5-1f59-43d0-82e3-246f2307f6ae.mp3?source=PAGE_PLAYER_PR_V2)
+
 * [521. "Ida Haendel 1928-2020 (Duża czarna/Dwójka)"](https://static.prsa.pl//static.prsa.pl/47587730-39ca-466c-95cc-e6daca248537.mp3?source=PAGE_PLAYER_PR_V2)
 
 * [520. "Beethoven Symfonie Konwitschny vs Kletzki (Duża czarna/Dwójka)"](https://static.prsa.pl//static.prsa.pl/b9218433-8d2c-47bd-8041-0348116a8785.mp3?source=PAGE_PLAYER_PR_V2)
