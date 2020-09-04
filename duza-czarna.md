@@ -1,10 +1,11 @@
 ## Duża czarna
+* [525. "Leon Fleisher 1928-2020 - 08.08.2020"](https://static.prsa.pl//static.prsa.pl/c48851b7-4b92-47ed-9050-1c59d6180781.mp3?source=PAGE_PLAYER_PR_V2)
 
-* [524. "Polskie Nagrania (Dużą czarna/Dwójka)"](https://static.prsa.pl//static.prsa.pl/96d6fc45-de02-41d8-a98d-98e2853bc64d.mp3?source=PAGE_PLAYER_PR_V2)
+* [524. "Polskie Nagrania - 01.08.2020"](https://static.prsa.pl//static.prsa.pl/96d6fc45-de02-41d8-a98d-98e2853bc64d.mp3?source=PAGE_PLAYER_PR_V2)
 
-* [523."Bernand Ładysz (Duża czarna/Dwójka)"](http://static.polskieradio.pl/0f187753-9a64-43e7-b3a2-f7fb46281278.mp3?source=MAIN_PLAYER_PR_V2)
+* [523."Bernand Ładysz (Duża czarna/Dwójka) - 25.07.2020"](http://static.polskieradio.pl/0f187753-9a64-43e7-b3a2-f7fb46281278.mp3?source=MAIN_PLAYER_PR_V2)
 
-* [522. "La Mer (Duża czarna/Dwójka)"](https://static.prsa.pl//static.prsa.pl/a06da8f5-1f59-43d0-82e3-246f2307f6ae.mp3?source=PAGE_PLAYER_PR_V2)
+* [522. "La Mer (Duża czarna/Dwójka) - 18.07.2020"](https://static.prsa.pl//static.prsa.pl/a06da8f5-1f59-43d0-82e3-246f2307f6ae.mp3?source=PAGE_PLAYER_PR_V2)
 
 * [521. "Ida Haendel 1928-2020 (Duża czarna/Dwójka)"](https://static.prsa.pl//static.prsa.pl/47587730-39ca-466c-95cc-e6daca248537.mp3?source=PAGE_PLAYER_PR_V2)
 
