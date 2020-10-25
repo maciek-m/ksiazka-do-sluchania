@@ -1,4 +1,11 @@
 ## Duża czarna
+* [528. "Charlie Parker - 100. rocznica urodzin" - 29.08.2020](https://static.prsa.pl//static.prsa.pl/4cd37fd5-8370-40b8-8174-09e2a10daf43.mp3?source=PAGE_PLAYER_PR_V2)
+
+* [527. "John Barbirolli & George Szell" - 22.08.2020](https://static.prsa.pl//static.prsa.pl/b723e899-76d9-4e23-980b-ea093a69d415.mp3?source=PAGE_PLAYER_PR_V2)
+
+
+* [526. "Róża Etkin / Karlobert Kreiten / Alma Rose" - 15.08.2020](https://static.prsa.pl//static.prsa.pl/54126305-e365-4298-85a6-626d75e66193.mp3?source=PAGE_PLAYER_PR_V2)
+
 * [525. "Leon Fleisher 1928-2020" - 08.08.2020](https://static.prsa.pl//static.prsa.pl/c48851b7-4b92-47ed-9050-1c59d6180781.mp3?source=PAGE_PLAYER_PR_V2)
 
 * [524. "Polskie Nagrania" - 01.08.2020](https://static.prsa.pl//static.prsa.pl/96d6fc45-de02-41d8-a98d-98e2853bc64d.mp3?source=PAGE_PLAYER_PR_V2)
@@ -33,4 +40,4 @@
 
  * [509. "I Gioielli Della Lirica", czyli klejnoty opery (Duża Czarna/Dwójka)](https://static.prsa.pl/342818a8-2fbc-4993-8988-fb57bb508517.mp3?source=MAIN_PLAYER_PR_V2)
 
-  * [508. Chopin alternatywnie - Chopin NYC (Duża Czarna/Dwójka)](https://static.prsa.pl/e09a5958-e5f1-4c33-948f-e1ebe4bcf18f.mp3?source=MAIN_PLAYER_PR_V2)
+ * [508. Chopin alternatywnie - Chopin NYC (Duża Czarna/Dwójka)](https://static.prsa.pl/e09a5958-e5f1-4c33-948f-e1ebe4bcf18f.mp3?source=MAIN_PLAYER_PR_V2)
