@@ -40,4 +40,33 @@
 
  * [509. "I Gioielli Della Lirica", czyli klejnoty opery (Duża Czarna/Dwójka)](https://static.prsa.pl/342818a8-2fbc-4993-8988-fb57bb508517.mp3?source=MAIN_PLAYER_PR_V2)
 
- * [508. Chopin alternatywnie - Chopin NYC (Duża Czarna/Dwójka)](https://static.prsa.pl/e09a5958-e5f1-4c33-948f-e1ebe4bcf18f.mp3?source=MAIN_PLAYER_PR_V2)
+ * [508. "Chopin alternatywnie - Chopin NYC (Duża Czarna/Dwójka)" - 11.04.2020](https://static.prsa.pl/e09a5958-e5f1-4c33-948f-e1ebe4bcf18f.mp3?source=MAIN_PLAYER_PR_V2)
+
+ * [507. "Wiosna" - 04.04.2020](https://static.prsa.pl//static.prsa.pl/036825ae-ad91-4ba9-bbe4-a25ebbe61531.mp3?source=PAGE_PLAYER_PR_V2)
+
+ * [506. "Toscanini vs Furtwangler" - 21.03.2020](https://static.prsa.pl//static.prsa.pl/fb84582e-33ab-4808-ab9c-e1002dee8b63.mp3?source=PAGE_PLAYER_PR_V2)
+
+ * [505. "Weingartner vs Mengelberg" - 14.03.2020](https://static.prsa.pl//static.prsa.pl/94c3fbee-8428-4d9a-993f-2f723a43463f.mp3?source=PAGE_PLAYER_PR_V2)
+
+ * [504. "Kompozytorki" - 07.03.2020](https://static.prsa.pl//static.prsa.pl/65487e98-d042-41b1-8f68-2ca51ce13106.mp3?source=PAGE_PLAYER_PR_V2)
+
+ * [503. "Milne / Dorenskij / Simon / Leeuw" - 29.02.2020](https://static.prsa.pl//static.prsa.pl/b2ef8f98-cde8-472b-ac33-78c2d2229a00.mp3?source=PAGE_PLAYER_PR_V2)
+
+ * [502. "Mati Klarwein i jego okładki" - 22.02.2020](https://static.prsa.pl//static.prsa.pl/162bfce9-3d2e-4778-9099-ebbe274508c9.mp3?source=PAGE_PLAYER_PR_V2)
+
+* [501. "Wariacje goldbergowskie" Jana Sebastiana Bacha (Duża czarna/Dwójka) - 15.02.2020](https://static.prsa.pl/0288f802-62da-4927-b0d4-576ad8ea7953.mp3?source=MAIN_PLAYER_PR_V2)
+
+* [500. Jubileuszowe – 500. i aż czterogodzinne wydanie audycji (Duża czarna/Dwójka) - 08.02.2020](https://static.prsa.pl/6d20564c-5f98-4d92-ac7c-bb3021290e3f.mp3?source=MAIN_PLAYER_PR_V2)
+
+* [499. Pierwsi wielcy artyści przed mikrofonem Polskiego Radia (Duża Czarna/Dwójka) - 01.02.2020](https://static.prsa.pl/a1a8588e-7894-4047-9b53-12a873ec795f.mp3?source=MAIN_PLAYER_PR_V2)
+
+* [498. Beethoven Tripelkonzert - 25.01.2020](https://static.prsa.pl//static.prsa.pl/17a22d94-62bf-4f33-879a-db781a198be0.mp3?source=PAGE_PLAYER_PR_V2)
+
+* [497. "Agaronian & Alumae" - 18.01.2020](https://static.prsa.pl//static.prsa.pl/f4ae5a31-7dd8-4932-8b3e-f690a0bdefd9.mp3?source=PAGE_PLAYER_PR_V2)
+
+* [496. Arturo Benedetti Michelangeli. W stulecie urodzin mistrza (Duża czarna/Dwójka) - 11.01.2020](https://static.prsa.pl/5eaa53ce-1c64-4299-80bc-550d49ba4a50.mp3?source=MAIN_PLAYER_PR_V2)
+
+* [495. Duża czarna - wydanie jubileuszowe - 04.01.2020](https://static.prsa.pl/c94610d9-c58b-4760-b173-7de4663c0044.mp3?source=MAIN_PLAYER_PR_V2)
+
+* [494. Jerzy Semkow w 5. rocznicę śmierci - 28.12.2019](https://static.prsa.pl//static.prsa.pl/66408ffe-f7fc-4c10-b435-7b7839573a4c.mp3?source=PAGE_PLAYER_PR_V2)
+
