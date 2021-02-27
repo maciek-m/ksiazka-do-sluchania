@@ -1,5 +1,45 @@
 ## Duża czarna
-* [528. "Charlie Parker - 100. rocznica urodzin" - 29.08.2020](https://static.prsa.pl//static.prsa.pl/4cd37fd5-8370-40b8-8174-09e2a10daf43.mp3?source=PAGE_PLAYER_PR_V2)
+
+* [554. Muzyczne interpretacje Kazimierza Korda (Duża czarna/Dwójka)](https://static.prsa.pl/ed7a5343-1956-4162-b2c2-c95531c7cc71.mp3?source=MAIN_PLAYER_PR_V2)
+
+* [553. Wytwórnia Supraphon (Duża Czarna/Dwójka)](https://static.prsa.pl/060b8351-f1d3-4def-bd61-0597df39a149.mp3?source=MAIN_PLAYER_PR_V2),
+
+## Book
+
+* [551. Brahms pod batutą Waltera (Duża czarna/Dwójka)](https://static.prsa.pl/dade0a6d-e5c0-4f4c-b36b-1ccb2cec6124.mp3?source=MAIN_PLAYER_PR_V2),
+
+* [548. Mieczysław Stoch i Marcin Zgliński wspominają Camillę Wicks, Idę Haendel oraz Ivry'ego Gitlisa (Duża Czarna/Dwójka)](https://static.prsa.pl/7b1cf063-04dd-441b-bc44-0a9e5ea3d7e4.mp3?source=MAIN_PLAYER_PR_V2)
+
+
+* [542. Maria Judina & Glenn Gould (Duża Czarna/Dwójka)](https://static.prsa.pl/54080f57-a18f-40ef-93b3-fd4778c8a2c1.mp3?source=MAIN_PLAYER_PR_V2),
+
+* [541. Haydn 2032](https://static.prsa.pl/498cf48d-9989-4696-b2dc-6f4bb6e929fd.mp3?source=PAGE_PLAYER_PR_V2)
+
+* [540. Miguel Angel Estrella & Zhu Xiao-Mei]
+
+* [539. Płyty Mercury Records z żywą orkiestrą (Duża czarna/Dwójka)](https://static.prsa.pl/f5b268b3-80ef-40ee-b402-47be4a22e828.mp3?source=MAIN_PLAYER_PR_V2),
+
+* [538. Rudolf Barszaj. W 10. rocznicę śmierci](https://static.prsa.pl/842bc26a-e61e-4c92-9009-46cfb8262d7f.mp3?source=MAIN_PLAYER_PR_V2)
+
+* [537. Jan Krenz 1926-2020](https://static.prsa.pl/f2ee9ba9-183f-4d82-91f6-6efc08f961cf.mp3?source=PAGE_PLAYER_PR_V2)
+
+ * [536. Columbia Symphony Orchestra vs The Philharmonia Orchestra (Duża czarna/Dwójka)](https://static.prsa.pl/319c645d-c13d-4789-970b-cd0e41d46184.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [535. Mark Tajmanow - arcymistrz w szachy i na pianinie (Duża czarna/Dwójka)](https://static.prsa.pl/63f2172c-3503-440b-a9ce-909e6e319667.mp3?source=MAIN_PLAYER_PR_V2),
+
+* [534. Les Discophiles Français](https://static.prsa.pl/929175e4-85c1-43e7-982d-978445d4278e.mp3?source=MAIN_PLAYER_PR_V2)
+
+* [533. Eliso Virsaladze & Samuil Feinberg](https://static.prsa.pl/f65417a4-3ce7-4d7d-85a8-fc1f2da55864.mp3?source=PAGE_PLAYER_PR_V2)
+
+* [532. Duża czarna - Beethoven Kwartety opp 74 & 95 - Dimov Q / Smetana Q](https://static.prsa.pl//static.prsa.pl/bc197f3d-605e-435d-aaec-59c2b92d3a4d.mp3?source=PAGE_PLAYER_PR_V2)
+
+* [531. Unikatowe nagrania Róży Etkin-Moszkowskiej (Duża czarna/Dwójka)](https://static.prsa.pl/197a3555-d74a-483b-821a-aadc3c8daf57.mp3?source=MAIN_PLAYER_PR_V2)
+
+ * [530. Duża czarna. Wizyta w Hiszpanii (Dwójka/Duża czarna)](https://static.prsa.pl/abd6c87c-e57f-4ea5-952b-1906682ac68c.mp3?source=MAIN_PLAYER_PR_V2)
+
+ * [529. Dziesiąta Mahlera. Symfonia zagadka (Duża czarna/Dwójka)](https://static.prsa.pl/e1381955-83eb-4ed3-bd8d-233d0ca09ddf.mp3?source=MAIN_PLAYER_PR_V2)
+
+ * [528. "Charlie Parker - 100. rocznica urodzin" - 29.08.2020](https://static.prsa.pl//static.prsa.pl/4cd37fd5-8370-40b8-8174-09e2a10daf43.mp3?source=PAGE_PLAYER_PR_V2)
 
 * [527. "John Barbirolli & George Szell" - 22.08.2020](https://static.prsa.pl//static.prsa.pl/b723e899-76d9-4e23-980b-ea093a69d415.mp3?source=PAGE_PLAYER_PR_V2)
 
@@ -70,3 +110,6 @@
 
 * [494. Jerzy Semkow w 5. rocznicę śmierci - 28.12.2019](https://static.prsa.pl//static.prsa.pl/66408ffe-f7fc-4c10-b435-7b7839573a4c.mp3?source=PAGE_PLAYER_PR_V2)
 
+* [Leonard Bernstein i Orchestre National de France (Duża czarna/Dwójka)](https://static.prsa.pl/b0fdd53a-55a3-489e-afc5-3af22091a5d0.mp3?source=MAIN_PLAYER_PR_V2)
+
+* [Eugene Istomin - 23.08.2014](https://static.prsa.pl/static.prsa.pl/3852c582-e1fb-4584-b66c-7d2c6a66a164.mp3?source=PAGE_PLAYER_PR_V2)
