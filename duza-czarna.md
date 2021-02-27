@@ -111,4 +111,8 @@
 
 * [Leonard Bernstein i Orchestre National de France (Duża czarna/Dwójka)](https://static.prsa.pl/b0fdd53a-55a3-489e-afc5-3af22091a5d0.mp3?source=MAIN_PLAYER_PR_V2)
 
+* [231. Adolf Busch](https://static.prsa.pl//static.prsa.pl/6191687c-d4f5-4140-a4bb-4ac50d686e7e.mp3?source=PAGE_PLAYER_PR_V2)
+
+* [Artur Balsam II (20. rocznica śmierci)](https://static.prsa.pl//static.prsa.pl/b4d78127-ebb4-4946-b34c-4f4848fba450.mp3?source=PAGE_PLAYER_PR_V2")
+
 * [Eugene Istomin - 23.08.2014](https://static.prsa.pl/static.prsa.pl/3852c582-e1fb-4584-b66c-7d2c6a66a164.mp3?source=PAGE_PLAYER_PR_V2)
