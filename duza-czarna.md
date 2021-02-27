@@ -4,7 +4,6 @@
 
 * [553. Wytwórnia Supraphon (Duża Czarna/Dwójka)](https://static.prsa.pl/060b8351-f1d3-4def-bd61-0597df39a149.mp3?source=MAIN_PLAYER_PR_V2),
 
-## Book
 
 * [551. Brahms pod batutą Waltera (Duża czarna/Dwójka)](https://static.prsa.pl/dade0a6d-e5c0-4f4c-b36b-1ccb2cec6124.mp3?source=MAIN_PLAYER_PR_V2),
 
