@@ -1,5 +1,15 @@
 ## Duża czarna
 
+## Book
+
+## Book
+
+* [572. Brandenburskie. Część 2 (Duża Czarna/Dwójka)](https://static.prsa.pl/3347d1c1-2a00-47c5-8780-c463481272c0.mp3?source=MAIN_PLAYER_PR_V2)
+
+
+* [571. Brandenburskie. Część 1 (Duża Czarna/Dwójka)](https://static.prsa.pl/7b4b3695-e875-410f-9c46-eefc3b2d1427.mp3?source=MAIN_PLAYER_PR_V2)
+
+ 
 * [554. Muzyczne interpretacje Kazimierza Korda (Duża czarna/Dwójka)](https://static.prsa.pl/ed7a5343-1956-4162-b2c2-c95531c7cc71.mp3?source=MAIN_PLAYER_PR_V2)
 
 * [553. Wytwórnia Supraphon (Duża Czarna/Dwójka)](https://static.prsa.pl/060b8351-f1d3-4def-bd61-0597df39a149.mp3?source=MAIN_PLAYER_PR_V2),
@@ -113,6 +123,8 @@
 
 * [231. Adolf Busch](https://static.prsa.pl//static.prsa.pl/6191687c-d4f5-4140-a4bb-4ac50d686e7e.mp3?source=PAGE_PLAYER_PR_V2)
 
-* [Artur Balsam II (20. rocznica śmierci)](https://static.prsa.pl//static.prsa.pl/b4d78127-ebb4-4946-b34c-4f4848fba450.mp3?source=PAGE_PLAYER_PR_V2")
+* [Artur Balsam II (20. rocznica śmierci)](https://static.prsa.pl//static.prsa.pl/b4d78127-ebb4-4946-b34c-4f4848fba450.mp3?source=PAGE_PLAYER_PR_V2)
+
+* [Mistrzowie batuty: Oskar Fried i Erich Kleiber (Duża czarna/Dwójka) - 2.07.2016](https://static.prsa.pl/d48c0278-cbbd-46dd-addf-3d5dded0bbc9.mp3?source=MAIN_PLAYER_PR_V2)
 
 * [Eugene Istomin - 23.08.2014](https://static.prsa.pl/static.prsa.pl/3852c582-e1fb-4584-b66c-7d2c6a66a164.mp3?source=PAGE_PLAYER_PR_V2)
