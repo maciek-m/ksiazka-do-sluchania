@@ -4,7 +4,7 @@
 
 * [571. Brandenburskie. Część 1 (Duża Czarna/Dwójka)](https://static.prsa.pl/7b4b3695-e875-410f-9c46-eefc3b2d1427.mp3?source=MAIN_PLAYER_PR_V2)
 
-* [569. wytwórnia Harmonia Mundi (Duża czarna/Dwójka)](https://static.prsa.pl/bf51c850-4f8d-4daa-a00d-f40a0098a98c.mp3?source=MAIN_PLAYER_PR_V2),
+* [569. Wytwórnia Harmonia Mundi (Duża czarna/Dwójka)](https://static.prsa.pl/bf51c850-4f8d-4daa-a00d-f40a0098a98c.mp3?source=MAIN_PLAYER_PR_V2),
  
 * [554. Muzyczne interpretacje Kazimierza Korda (Duża czarna/Dwójka)](https://static.prsa.pl/ed7a5343-1956-4162-b2c2-c95531c7cc71.mp3?source=MAIN_PLAYER_PR_V2)
 
