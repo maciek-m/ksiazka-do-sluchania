@@ -1,0 +1,24 @@
+## Solaris
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 1. (Literacka sjesta/Dwójka) ](https://static.prsa.pl/9fbf247c-97ea-4abe-9e0b-d407381dc849.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 2. (Literacka sjesta/Dwójka) ](https://static.prsa.pl/a5e0fdc5-558f-4753-a5f7-89f105064de0.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 3. (Literacka sjesta/Dwójka)](https://static.prsa.pl/7063d0cb-2183-4906-ab40-a1424d4d8b5d.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 4. (Literacka sjesta/Dwójka)](https://static.prsa.pl/d95871eb-8526-40c6-aa37-85796824aa3b.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 5. (Literacka sjesta/Dwójka)](https://static.prsa.pl/50dcf125-32c6-41d1-ab68-03cdc89b6d7b.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [14:32 LIteracka sjesta Dwójka10 wrzesień 2021 15_00_31.mp3 Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 6. (Literacka sjesta/Dwójka)](https://static.prsa.pl/372afc5d-9840-46f2-86ce-00672b07f655.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 7. (Literacka sjesta/Dwójka)](https://static.prsa.pl/a564ae3b-baa6-4b0b-8c98-fe4923a4b130.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 8. (Literacka sjesta/Dwójka)](https://static.prsa.pl/68eedbdc-59f7-488c-b645-84a80759b650.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 9. (Literacka sjesta/Dwójka)](https://static.prsa.pl/d0aba265-8461-4fc2-a322-d99e21dd6db9.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 10. (Literacka sjesta/Dwójka)](https://static.prsa.pl/962f8c0c-0438-455d-a55a-3ee30136cdcf.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 11. (Literacka sjesta/Dwójka)](https://static.prsa.pl/cd9cb89b-1c3a-4f17-8374-e85cd8367a1b.mp3?source=MAIN_PLAYER_PR_V2),
+
