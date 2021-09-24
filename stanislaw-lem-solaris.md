@@ -22,3 +22,11 @@
 
  1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 11. (Literacka sjesta/Dwójka)](https://static.prsa.pl/cd9cb89b-1c3a-4f17-8374-e85cd8367a1b.mp3?source=MAIN_PLAYER_PR_V2),
 
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 12. (Literacka sjesta/Dwójka)](https://static.prsa.pl/658aac4d-2db0-4b4d-a0e6-651ad5b1d7dc.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 13. (Literacka sjesta/Dwójka)](https://static.prsa.pl/e0de627a-ac4d-46d2-8cbc-929a9e16184c.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 14. (Literacka sjesta/Dwójka)](https://static.prsa.pl/e7f1c812-2e34-4504-9733-38666a70a4e7.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 15. (Literacka sjesta/Dwójka)](https://static.prsa.pl/8f576283-be15-4010-9048-93022039eca6.mp3?source=MAIN_PLAYER_PR_V2),
+
