@@ -1,5 +1,7 @@
 ## Duża czarna
 
+ * [581. Muzyczne skarby z oficyny L'Oiseau-Lyre (Duża czarna/Dwójka)](https://static.prsa.pl/a854b012-2411-41e5-97f3-93940c2e42d1.mp3?source=MAIN_PLAYER_PR_V2),
+
  * [580. W 20. rocznicę śmierci Isaaca Sterna (Duża czarna/Dwójka)](https://static.prsa.pl/66f3d75a-2fed-4233-82fc-7cd966b921d7.mp3?source=MAIN_PLAYER_PR_V2),
 
  * [579. Pamięci Igora Ojstracha (Duża czarna/Dwójka)](https://static.prsa.pl/eb195953-6b49-4a94-aaf7-293188f6979e.mp3?source=MAIN_PLAYER_PR_V2)
