@@ -1,5 +1,9 @@
 ## Duża czarna
 
+ * [580. W 20. rocznicę śmierci Isaaca Sterna (Duża czarna/Dwójka)](https://static.prsa.pl/66f3d75a-2fed-4233-82fc-7cd966b921d7.mp3?source=MAIN_PLAYER_PR_V2),
+
+ * [579. Pamięci Igora Ojstracha (Duża czarna/Dwójka)](https://static.prsa.pl/eb195953-6b49-4a94-aaf7-293188f6979e.mp3?source=MAIN_PLAYER_PR_V2)
+
 * [572. Brandenburskie. Część 2 (Duża Czarna/Dwójka)](https://static.prsa.pl/3347d1c1-2a00-47c5-8780-c463481272c0.mp3?source=MAIN_PLAYER_PR_V2)
 
 * [571. Brandenburskie. Część 1 (Duża Czarna/Dwójka)](https://static.prsa.pl/7b4b3695-e875-410f-9c46-eefc3b2d1427.mp3?source=MAIN_PLAYER_PR_V2)
