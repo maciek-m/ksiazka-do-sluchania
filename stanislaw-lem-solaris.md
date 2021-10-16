@@ -40,4 +40,27 @@
 
  1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 20. (Literacka sjesta/Dwójka)](https://static.prsa.pl/2221cc9c-f5dd-4931-84c6-ee8c067b0ed7.mp3?source=MAIN_PLAYER_PR_V2),
 
- 
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 21. (Literacka sjesta/Dwójka)](https://static.prsa.pl/74a9e25f-1fc2-441a-ab73-b640a313a798.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 22. (Literacka sjesta/Dwójka)](https://static.prsa.pl/c2d91e17-bc50-4fd5-8c67-000666c09571.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 23. (Literacka sjesta/Dwójka)](https://static.prsa.pl/308d4021-f526-4f84-bb5b-4507369cbd13.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 24. (Literacka sjesta/Dwójka)](https://static.prsa.pl/28622c58-fe35-47c7-8f7d-1355ec4d7f23.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 25. (Literacka sjesta/Dwójka)
+](https://static.prsa.pl/23b93c52-ccac-43d5-aa97-a0d1027955b1.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 26. (Literacka sjesta/Dwójka)](https://static.prsa.pl/b9accabc-1585-498f-8d85-cf34e7eff159.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 27. (Literacka sjesta/Dwójka)](https://static.prsa.pl/136ab75e-8075-4dd9-bcbf-61e8e197197e.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 28. (Literacka sjesta/Dwójka)](https://static.prsa.pl/d19b1b94-72f5-4b16-aeee-e15c1323f12a.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 29. (Literacka sjesta/Dwójka)](https://static.prsa.pl/04eaa983-9f55-45a2-a2ee-b5982d789990.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Rozmowa o powieściach Stanisława Lema w wersji komiksowej (Wszystkie gatunki Lema/Dwójka)](https://static.prsa.pl/95192656-b424-4c9e-8a67-9e6b3bcc108a.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Rozmowa o utopii w twórczości Stanisława Lema (Wszystkie gatunki Lema/Dwójka)](https://static.prsa.pl/0a81f382-de7e-4c6f-ab45-de55afdd7428.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Problem poznania w twórczości Stanisława Lema (Wszystkie gatunki Lema/Dwójka)](https://static.prsa.pl/0ba0681a-fc25-48ec-b8dc-d911c345244a.mp3?source=MAIN_PLAYER_PR_V2)
