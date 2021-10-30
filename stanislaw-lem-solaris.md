@@ -59,6 +59,18 @@
 
  1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 29. (Literacka sjesta/Dwójka)](https://static.prsa.pl/04eaa983-9f55-45a2-a2ee-b5982d789990.mp3?source=MAIN_PLAYER_PR_V2),
 
+1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 30. (Literacka sjesta/Dwójka)](https://static.prsa.pl/9dbbc22f-de7b-415f-9fc0-0ab3aa51adb9.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 31. (Literacka sjesta/Dwójka)](https://static.prsa.pl/5bd15fe4-f4de-4baa-adf0-662217881f2e.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 32. (Literacka sjesta/Dwójka)](https://static.prsa.pl/4e63456a-876d-4b07-b006-8e56e9ae7f04.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 33. (Literacka sjesta/Dwójka)](https://static.prsa.pl/956141c6-1d84-4f54-8271-77afb5bf1e98.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 35. (Literacka sjesta/Dwójka)](https://static.prsa.pl/c72f6df7-b954-423c-9a79-070d6d7eb1f2.mp3?source=MAIN_PLAYER_PR_V2),
+
+ 1. [Stanisław Lem "Solaris", czyta Piotr Fronczewski - fragm. 35. (Literacka sjesta/Dwójka)](https://static.prsa.pl/c0a8a1c2-49da-4b60-bed7-99c49f5c981d.mp3?source=MAIN_PLAYER_PR_V2),
+
  1. [Rozmowa o powieściach Stanisława Lema w wersji komiksowej (Wszystkie gatunki Lema/Dwójka)](https://static.prsa.pl/95192656-b424-4c9e-8a67-9e6b3bcc108a.mp3?source=MAIN_PLAYER_PR_V2),
 
  1. [Rozmowa o utopii w twórczości Stanisława Lema (Wszystkie gatunki Lema/Dwójka)](https://static.prsa.pl/0a81f382-de7e-4c6f-ab45-de55afdd7428.mp3?source=MAIN_PLAYER_PR_V2),
